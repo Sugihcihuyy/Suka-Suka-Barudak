@@ -1,4 +1,4 @@
-# Suka-Suka-Barudak
+# DISDUK-KITA
 Rossy Cahaya .M
 Rahma Aulia
 Ghea Nur Rahma .P
